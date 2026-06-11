@@ -25,8 +25,7 @@ Here, you'll find my work related to:
 This profile showcases my projects, learning journey, dashboards, case studies, and analytical work focused on solving business problems using data.
 
 ## 📫 Connect With Me
-🔗 LinkedIn:https://www.linkedin.com/in/umajadhavofficial?utm_source=share_via&utm_content=profile&utm_medium=member_android
-
+🔗 LinkedIn:https://www.linkedin.com/in/umajadhavofficial
 📧 Email: uma421482@gmail.com
 
 Thank you for visiting my profile. Feel free to explore my work and connect!
